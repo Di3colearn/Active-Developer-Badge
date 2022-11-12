@@ -37,12 +37,6 @@
 
 ![alt text](https://cdn.discordapp.com/attachments/983399863913971763/1041068515987312712/image.png)
 
-
-
-
-2. James Monroe
-3. John Quincy Adams
-
 توضیحات کامل در این **[ویدیو](https://youtu.be/gzQfagoSqgE)** قرار دارد 
 
 با تشکر از **[Master X#6996](https://github.com/MasterX526)** بابت همکاری در پروژه ❤
