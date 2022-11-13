@@ -37,7 +37,7 @@
 
 ![alt text](https://cdn.discordapp.com/attachments/983399863913971763/1041068515987312712/image.png)
 
-توضیحات کامل در این **[ویدیو](https://youtu.be/gzQfagoSqgE)** قرار دارد 
+توضیحات کامل در این **[ویدیو](https://youtu.be/K7ybUdAB10w)** قرار دارد 
 
 با تشکر از **[Master X#6996](https://github.com/MasterX526)** و **[Arshia
 #9402](https://github.com/arshixam)** بابت همکاری در پروژه ❤
