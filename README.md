@@ -39,4 +39,5 @@
 
 توضیحات کامل در این **[ویدیو](https://youtu.be/gzQfagoSqgE)** قرار دارد 
 
-با تشکر از **[Master X#6996](https://github.com/MasterX526)** بابت همکاری در پروژه ❤
+با تشکر از **[Master X#6996](https://github.com/MasterX526)** و **[Arshia
+#9402](https://github.com/arshixam)** بابت همکاری در پروژه ❤
